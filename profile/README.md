@@ -1,1 +1,1 @@
-# GTR
+# Gjøvik Technology Racing - GTR
